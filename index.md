@@ -16,3 +16,6 @@
 3. Roll out the dough and cut into circles or diamonds.
 4. Fry in hot oil until they puff up and turn golden.
 5. Drain on paper towels and serve with salsa or panela syrup. Enjoy!
+
+
+For more information see [here](https://historycooperative.org/who-invented-tacos/)
